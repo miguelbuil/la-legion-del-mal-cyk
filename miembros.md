@@ -19,3 +19,10 @@
 * Two-Face
 * Flash Reverso
 * Bane
+* Jewelee
+* Jinx
+* The Key
+* Killer Croc
+* Lady Vic
+* Major Force
+* Magenta (DC Comics)
